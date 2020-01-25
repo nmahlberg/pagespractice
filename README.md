@@ -11,8 +11,7 @@
 
 ## Favorite Right Now From Each
 ![Spider-Man by Rahal Nejraoui on Dribbble.com](https://github.com/nmahlberg/pagespractice/blob/master/spiderman.png)
-    Spider-Man by Rahal Nejraoui on Dribbble.com
-[]
+Spider Man by Rahal Nejraoui on Dribbble.com
 
 
 
