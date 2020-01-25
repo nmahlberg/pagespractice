@@ -10,7 +10,7 @@
 * [DeviantArt](https://www.deviantart.com/)
 
 ## Favorite Right Now From Each
-![Spider-Man by Rahal Nejraoui on Dribbble.com](https://cdn.dribbble.com/users/94598/screenshots/9674312/media/f2f603be6657b5360e7f571de984fc49.png)
+![spider-manbyrahalnejraoui](https://cdn.dribbble.com/users/94598/screenshots/9674312/media/f2f603be6657b5360e7f571de984fc49.png)
 <br/>
 Spider-Man by Rahal Nejraoui on Dribbble.com
 
